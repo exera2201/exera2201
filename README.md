@@ -3,4 +3,4 @@
    ![ms_dos_era_05](https://user-images.githubusercontent.com/119492886/219864091-842c06e7-b1ac-45c2-a2b5-9c0aadf34286.gif)
 https://github.com/exera2201/Nirto-Gen-Discord-Checker
 
-                                              mon discord ' !" exera #2964' ;)
+                                              mon discord ' !" exera #9711' ;)
