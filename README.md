@@ -1,7 +1,7 @@
           
           
                                                Languages  :  Python                      
-                                  *            Languages  :  HTML, CSS                *                                                                           
+                                  *            Languages  :  HTML, CSS                 *                                                                           
                                   ╚════════════════════════════════════════════════════╝
           
           
