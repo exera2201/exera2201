@@ -12,4 +12,4 @@
    
 https://github.com/exera2201/Nirto-Gen-Discord-Checker
 
-                                              mon discord-> !" exera #9711 
+                                              mon discord-> exera.exe #8743 
